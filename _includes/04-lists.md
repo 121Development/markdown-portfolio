@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. CrossFit
+2. Food
+3. Sleep
